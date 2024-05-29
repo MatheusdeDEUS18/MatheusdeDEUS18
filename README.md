@@ -16,5 +16,7 @@ Você pode entrar em contato comigo 📫
 
 ![](https://media1.tenor.com/m/qO2i2yn9saUAAAAC/peace-out-peace-sign.gif)
 
+![](https://media1.tenor.com/m/3yPBPC_dwe8AAAAC/leonardo-dicaprio-clapping.gif)
+
 
 
