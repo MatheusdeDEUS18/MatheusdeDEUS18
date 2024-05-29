@@ -9,4 +9,10 @@ Meu nome é Matheus da Silva Pinheiro.
 - Moro na cidade de Jaci-SP ...
 - Sou cearence ...
 - Futuramente pretendo fazer faculdade de Administração ADM ...
--->
+
+Você pode entrar em contato comigo 📫
+
+00001204308482SP@al.educacao.sp.gov.br
+
+![](https://i.gifer.com/XOsX.gif)
+
