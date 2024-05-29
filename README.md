@@ -14,5 +14,7 @@ Você pode entrar em contato comigo 📫
 
 00001204308482SP@al.educacao.sp.gov.br
 
-![](https://i.gifer.com/XOsX.gif)
+![](https://media1.tenor.com/m/qO2i2yn9saUAAAAC/peace-out-peace-sign.gif)
+
+
 
